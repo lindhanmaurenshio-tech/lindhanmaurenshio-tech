@@ -36,4 +36,4 @@ Saya ingin menjadi seseorang yang mampu **menggabungkan ilmu geofisika dengan te
 - 🌐 GitHub: [github.com/LinDhanMaurenshio](https://github.com/)  
 - 💼 LinkedIn: [linkedin.com/in/lindhanmaurenshio](https://www.linkedin.com/)  
 - 📧 Email: [lindhanmaurenshio@mail.ugm.ac.id]
-✨ Terima kasih sudah berkunjung ke profil saya!
+- Terima kasih sudah berkunjung ke profil saya!
